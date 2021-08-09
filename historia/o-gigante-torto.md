@@ -54,8 +54,16 @@ O dia também amanheceu para Jotão. Ele levantou cedo, foi na sua horta pegar leg
 
 Lolô entendeu que aquilo era importante para o gigante, ela nunca tinha visto ele tão feliz, mas também sabia que ele podia se decepcionar. Lolô amava muito Jotão, ele tinha salvado sua vida e não queria ver o gigante triste mas também não queria ser desagradável e tirar sua felicidade. Afinal de contas, ela estava feliz por seu amigo. Ela só deu um único conselho ao seu amigo: 'tome cuidado para não ser descoberto por outras pessoas'. Jotão nem imaginava que isso poderia acontecer.
 
-continuar dizendo que eles se viram e como ele passou sua forma de ver o mundo para ela
-ela se apaixona por ele, eles se apaixonam
+Então o que foi prometido foi cumprido, Jotão começou a visitar a princesa todo dia. Durante o período que estavam juntos Jotão explicava para ela o jeito que ele via o mundo, ela explicava para ele como era o mundo dos homens, de que existiam outros reinos como o dela em terras distantes. Às vezes eles ficavam junto até o início do anoitecer e Jotão falava das estrelas para ela. Os gigantes acreditam que seus antepassados viram estrelas depois que morrem e que ficam lá de cima protegendo os que ainda estão vivos, eles também usam as estrelas para se guiar durante a noite.
+
+Ele, algumas vezes, botava ela em seu ombro e deixava q era visse a copa das árvores e visse o mundo como se fosse um gigante também. A princesa amava esses momentos com Jotão, ela se sentia livre, realizada, conectada com o mundo, e assim se sentia Jotão também. Havia um sentimento muito puro ali sendo criado, um sentimento que muitas pessoas vão perdendo quando envelhecem. As visitas continuaram e todo tipo de conversa acontece ali. Comida favorita, medos, sonhos, saudades dos que já se foram, metas a serem concluídas, hobbies e por aí vai. O sentimento entre os dois foi mudando, quando um não podia ver o outro era um aperto tremendo no coração e quando se reencontravam era como se fosse a primeira vez.
+
+A maioria das conversas acontecia quando os dois estavam deitados sob a grama e um dia, por acaso, a mão imensa de Jotão encontrou a pequena mão da princesa enquanto apreciavam o dia lindo que fazia. Ela ficou nervosa, começou a suar frio e seu coração acelerou, mas sentiu algo que dizia para ela que aquilo era o certo a ser fazer, então ela segurou a mão de Jotão. De início, Jotão não tinha percebido o que estava acontecendo mas começou a sentir algo quente em sua mão e quando caiu em si entendeu que era a mão da princesa. Jotão não entendia porque a mão dela segurava a dele, tudo aquilo era novidade mas ele também sentia que o certo a se fazer e com sua mão gigante envolveu a pequena mão dela. E assim, ficaram os dois aquele dia, em silêncio de mãos dados olhando para as nuvens que brincavam no céu naquele dia lindo de sol.
+
+Quando chegou o momento da despedida naquele dia, Jotão se ajoelhou para falar com a princesa. Ele nunca tinha se ajoelhado antes para ela. Os dois ficaram se olhando sem dizer nada por um tempo e depois se abraçaram. Existem certas coisas que não precisam ser ditas, o coração te guia em situações assim. Os dois já tinham entendido que o sentimento entre eles havia mudado, além de amigos estavam também apaixonados.
+
+
+
 ela esquece de contar sobre a festa
 ele ve ela sendo ridicularizada
 ele defende ela
