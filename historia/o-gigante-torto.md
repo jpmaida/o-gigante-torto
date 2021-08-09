@@ -62,7 +62,11 @@ A maioria das conversas acontecia quando os dois estavam deitados sob a grama e 
 
 Quando chegou o momento da despedida naquele dia, Jotão se ajoelhou para falar com a princesa. Ele nunca tinha se ajoelhado antes para ela. Os dois ficaram se olhando sem dizer nada por um tempo e depois se abraçaram. Existem certas coisas que não precisam ser ditas, o coração te guia em situações assim. Os dois já tinham entendido que o sentimento entre eles havia mudado, além de amigos estavam também apaixonados.
 
+Um certo dia Jotão foi visitar a princesa como de costume. Em uma mão tinha flores que ele mesmo encontrou no caminho que passou e em seu rosto um sorriso largo de alegria. Quando ele chegou perto do jardim do castelo, lugar que ele costumava esperar até que ela viesse ao seu encontro, notou uma situação diferente do que estava acostumado. Haviam outras pessoas no jardim de sua princesa amada. Princesas, príncipes e alguns outros nobres estavam lá passeando entre as plantas bem cuidadas do jardim e seus chafarizes que esguichavam água por todo lado. Jotão ficou confuso sobre quem seriam aquelas pessoas, mas sabia que não devia se intrometer, ficou ali esperando com as flores na mão.
 
+O que ele não sabia na verdade é que naquela semana o castelo estava dando uma festa para reunir os nobres de todos os reinos da região e cada nobre tinha trazido seus filhos. O jardim era o local onde os jovens ficavam e lá estava a linda princesa de Jotão junto com os outros. A situação ficava cada vez mais confusa, o que a princesa estaria fazendo com aquelas outras pessoas? Será que ela tinha contado sobre Jotão para outras pessoas?
+
+De repente, Jotão viu o inacreditável....
 
 ela esquece de contar sobre a festa
 ele ve ela sendo ridicularizada
