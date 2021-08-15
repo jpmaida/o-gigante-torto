@@ -66,7 +66,23 @@ Um certo dia Jotão foi visitar a princesa como de costume. Em uma mão tinha flor
 
 O que ele não sabia na verdade é que naquela semana o castelo estava dando uma festa para reunir os nobres de todos os reinos da região e cada nobre tinha trazido seus filhos. O jardim era o local onde os jovens ficavam e lá estava a linda princesa de Jotão junto com os outros. A situação ficava cada vez mais confusa, o que a princesa estaria fazendo com aquelas outras pessoas? Será que ela tinha contado sobre Jotão para outras pessoas?
 
-De repente, Jotão viu o inacreditável....
+De repente, Jotão viu o inacreditável! Sua princesa lá, sozinha, encolhida, com as mãos ao rosto sentada em um banco. Ele se esforçou para ver melhor, ela estava chorando. Mas, porque ela estaria chorando? Jotão nunca viu a princesa chorar, na verdade ele nunca pensou que ela um dia pudesse chorar. Afinal de contas, a princesa representava para Jotão a alegria e a bondade que existe no mundo.
+
+Jotão se aproximou um pouco para conseguir enxergar melhor, tomou todo cuidado do mundo porque sabia que seria muito fácil perceber a presença dele mesmo estando longe ainda. Cada passo era feito tão lentamente que parecia levar uma eternidade, cada barulho feito tinha que ser calculado para que soasse como um som da floresta. Pronto! Jotão chegar perto para dar uma espiada melhor.
+
+Ele viu que a princesa ainda estava chorando e não somente conseguia ver melhor agora como também conseguia ouvir o que as pessoas diziam. O banco que a princesa estava era perto de um chafariz e naquele local, além da princesa, estavam outras pessoas. Lá tinha um rapaz alto com uma capa vermelha de veludo, camisa de linho bege e calça de couro marrom. Seu cabelo era loiro e brilhava como o sol, também carregava uma espada na cintura e o que segurava sua capa era um broche muito brilhante.
+
+Jotão viu aquele rapaz e logo deduziu que devia ser alguém importante, assim como sua princesa, por causa da roupa que vestia. Todos ali vestiam lindas roupas, feitas pelos melhores alfaiates da região. Do lado do jovem príncipe estavam três outras princesas, todas muito bem arrumadas e lindas, com seus cabelos longos e lisos. A pele de todos era bem clara como a neve que Jotão brincava quando chegava o inverno. Uma das princesas tinha o cabelo vermelho como o fogo e aquilo foi uma surpresa para Jotão, por um momento ele achou que a cabeça da menina estava em chamas. Outra tinha o cabelo negro como a noite e a última tinha o cabelo castanho como o de Jotão. Será que todas essas pessoas não notavam que sua princesa estava chorando?
+
+Prestando maior atenção ele ouviu que uma das jovens princesas falava algo apontando para a princesa de Jotão, e que depois disso ela começou a chorar mais e mais. Naquela hora ele não conseguiu entender bem, mas logo em seguida ele conseguiu entender toda a situação. Eles estavam fazendo piada de sua princesa. Por isso ela chorava tanto. E aí veio a confirmação, ele conseguiu entender o que eles diziam.
+
+"Olha lá a princesa carvãozinho com seu cabelo de palha."
+
+"Não digam isso alto porque senão ela vai correr para o colo do papai para chorar!"
+
+"Será que ela não se toca de como está ridícula com este vestido? Ela nunca vai pertencer ao nosso grupo"
+
+Os guardar do castelo viam aquilo e ninguém fazia nada. Os outros jovens que estavam ali no jardim viam aquilo e não faziam nada. 
 
 ela esquece de contar sobre a festa
 ele ve ela sendo ridicularizada
