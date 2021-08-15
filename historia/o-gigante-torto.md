@@ -80,9 +80,25 @@ Prestando maior atenção ele ouviu que uma das jovens princesas falava algo apont
 
 "Não digam isso alto porque senão ela vai correr para o colo do papai para chorar!"
 
-"Será que ela não se toca de como está ridícula com este vestido? Ela nunca vai pertencer ao nosso grupo"
+"Será que ela não se toca de como está ridícula com este vestido? Ela nunca vai pertencer ao nosso grupo."
 
-Os guardar do castelo viam aquilo e ninguém fazia nada. Os outros jovens que estavam ali no jardim viam aquilo e não faziam nada. 
+Os guardas do castelo viam aquilo e ninguém fazia nada. Os outros jovens que estavam ali no jardim viam aquilo e também não faziam nada, mas como alguém vê uma situação daquelas e não faz nada? Era esse o tipo de pergunta que Jotão se fazia. Mas, alguns segundos depois, a dúvida foi embora e tomou lugar um outro sentimento desconhecido ainda para Jotão. Ele sentia que seu coração batia tão forte como nunca batera antes, o som que fazia dentro de seu corpo era o mesmo som do velho tambor de seu pai mas mil vezes mais rápido. Ele sentiu todo o seu corpo ficar quente, como se sangue tivesse virado fogo. A dor que sentia na perna menor também tinha ido embora. Ele apertava os dentes com uma força que poderia partir em dois uma rocha, suas mãos estavam tão fechadas que as flores que antes era o presente da princesa já estavam mortas.
+
+Tudo aquilo que Jotão sentia mas não entendia era ira. Ele nunca tinha sentido isso antes, nunca tinha vivido algo como aquilo. Em seu coração só havia a necessidade de proteger sua princesa daqueles malfeitores, e sem ao menos perceber o que estava fazendo deu grito tão alto, mas tão alto, que todos os pássaros que estava ali perto voaram assustados. É isso o que a ira faz em nossos corações, ficamos nervosos, não medimos nossas ações. E, aquele momento era o momento de Jotão pôr para fora tudo o que sentia. Foram anos pensando o porquê da fuga de seus pais, anos ouvindo piadas dos outros animais da floresta, anos sentindo medo e agora aquilo. A única pessoa que havia aceitado Jotão como ele realmente é, que tinha só mostrado o que era o amor para ele estava sendo humilhada por outras pessoas. Isso ele não podia tolerar.
+
+O grito causou tanto espanto que todos que estavam no jardim pararam por alguns segundos assustados, até mesmo a princesa parou de chorar. Ninguém conhecia aquele som, era como se fosse um rugido de um animal em fúria mas com dor ao mesmo tempo. Os guardas já estavam em estado de alerta, o som tinha vindo da floresta e todos estavam olhando para lá. De repente, alguns arbustos se mexem e Jotão emerge arrancando um segundo grito de seus pulmões. Sua boca estava aberta, com os dentes amostra, mãos abertas com os longos e musculosos braços flexionados à frente do corpo. O que antes era apenas um susto para aqueles que estavam no jardim, agora era um pesadelo porque todos reconheciam que aquele na floresta era um gigante.
+
+Um terceiro ruído foi feito por Jotão, como se fosse uma espécie de grunhido e sua investida contra o jardim começou. O gigante torto começou a correr em direção a princesa para protegê-la. Cada passo que dava fazia o chão tremer, parecia um verdadeiro terremoto. Algumas mesinhas que estavam com bebidas e petiscos caíram com o impacto. Toda a decoração do jardim começou a balançar, algumas tendas caíram, copos e pratos quebravam e pessoas gritavam de medo. O jovem príncipe todo arrumado e imponente com sua espada não conseguia falar uma única palavra, sua boca se mexia mas não saía som. Todos achavam que não existiam mais gigantes vivos, mas estavam enganados, Jotão estava lá.
+
+A fúria em Jotão era tão grande que as árvores que estavam em sua frente eram derrubadas com suas imensas mãos. 
+
+
+
+As princesas que antes faziam piada e deboche da princesa de Jotão choravam com medo
+
+
+
+Mas este não um ruído qualquer, era como se alguém falasse 'nnnnãããããããoooooooo'. Este segundo grito foi mais aterrorizante que o primeiro e 
 
 ela esquece de contar sobre a festa
 ele ve ela sendo ridicularizada
