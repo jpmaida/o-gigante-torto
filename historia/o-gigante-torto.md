@@ -90,18 +90,17 @@ O grito causou tanto espanto que todos que estavam no jardim pararam por alguns 
 
 Um terceiro ruído foi feito por Jotão, como se fosse uma espécie de grunhido e sua investida contra o jardim começou. O gigante torto começou a correr em direção a princesa para protegê-la. Cada passo que dava fazia o chão tremer, parecia um verdadeiro terremoto. Algumas mesinhas que estavam com bebidas e petiscos caíram com o impacto. Toda a decoração do jardim começou a balançar, algumas tendas caíram, copos e pratos quebravam e pessoas gritavam de medo. O jovem príncipe todo arrumado e imponente com sua espada não conseguia falar uma única palavra, sua boca se mexia mas não saía som. Todos achavam que não existiam mais gigantes vivos, mas estavam enganados, Jotão estava lá.
 
-A fúria em Jotão era tão grande que as árvores que estavam em sua frente eram derrubadas com suas imensas mãos. 
+A fúria em Jotão era tão grande que as árvores em seu caminho eram derrubadas com suas imensas mãos enquanto corria. Chegou no jardim com um pulo e com os braços erguidos acima da cabeça e punhos cerrados bateu no chão. A batida foi feita com tanta força que uma rachadura se abriu até o chafariz do jardim que não aguentou o impacto e quebrou na mesma hora. Jotão rapidamente passou o olho e procurou a princesa que ainda estava sendo no banco mas sem chorar. Na verdade, ela já tinha parado o choro desde do primeiro urro de Jotão, ela agora estava paralisada porque não conseguia acreditar no que estava vendo.
 
+A princesa esfregava os próprios olhos achando que estava em algum tipo de sonho e olhava fixamente para Jotão que correspondeu o olhar, indo ao seu encontro. Mesmo em um cenário igual aquele ela não sentia medo de Jotão, na verdade, ela não conseguia sentir medo dele. De alguma forma ela apenas sentia que ele não iria machucar ninguém, muito menos ela.
 
+Assim que Jotão encontrou a princesa, ele se virou rapidamente de costas para ela. Com uma mão voltada para atrás protegia ela e com a outra afastava quem tentava chegar perto. Jotão estava tão nervoso que havia esquecido como falar, como formar frases, ele só conseguia fazer ruídos que lembravam palavras. Com muita dificuldade, ele berrava:
 
-As princesas que antes faziam piada e deboche da princesa de Jotão choravam com medo
+'SSsssssaaaaaaaiiiiiiiii'
 
+'Lllllooooooooongeee'
 
+Iniciar próximo capítulo com o combate do príncipe e Jotão.
 
-Mas este não um ruído qualquer, era como se alguém falasse 'nnnnãããããããoooooooo'. Este segundo grito foi mais aterrorizante que o primeiro e 
-
-ela esquece de contar sobre a festa
-ele ve ela sendo ridicularizada
-ele defende ela
-ele corre perido
+ele corre perigo
 ela salva ele
