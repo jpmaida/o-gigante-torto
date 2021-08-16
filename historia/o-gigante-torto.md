@@ -103,4 +103,4 @@ Assim que Jotão encontrou a princesa, ele se virou rapidamente de costas para el
 Iniciar próximo capítulo com o combate do príncipe e Jotão.
 
 ele corre perigo
-ela salva ele 
+ela salva ele
