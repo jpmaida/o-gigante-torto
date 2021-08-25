@@ -72,17 +72,17 @@ Jot?o se aproximou um pouco para conseguir enxergar melhor, tomou todo cuidado d
 
 Ele viu que a princesa ainda estava chorando e n?o somente conseguia ver melhor agora como tamb?m conseguia ouvir o que as pessoas diziam. O banco que a princesa estava era perto de um chafariz e naquele local, al?m da princesa, estavam outras pessoas. L? tinha um rapaz alto com uma capa vermelha de veludo, camisa de linho bege e cal?a de couro marrom. Seu cabelo era loiro e brilhava como o sol, tamb?m carregava uma espada na cintura e o que segurava sua capa era um broche muito brilhante.
 
-Jot?o viu aquele rapaz e logo deduziu que devia ser algu?m importante, assim como sua princesa, por causa da roupa que vestia. Todos ali vestiam lindas roupas, feitas pelos melhores alfaiates da regi?o. Do lado do jovem pr?ncipe estavam tr?s outras princesas, todas muito bem arrumadas e lindas, com seus cabelos longos e lisos. A pele de todos era bem clara como a neve que Jot?o brincava quando chegava o inverno. Uma das princesas tinha o cabelo vermelho como o fogo e aquilo foi uma surpresa para Jot?o, por um momento ele achou que a cabe?a da menina estava em chamas. Outra tinha o cabelo negro como a noite e a ?ltima tinha o cabelo castanho como o de Jot?o. Ser? que todas essas pessoas n?o notavam que sua princesa estava chorando?
+Jot?o viu aquele rapaz e logo deduziu que devia ser algu?m importante, assim como sua princesa, por causa da roupa que vestia. Todos ali vestiam lindas roupas, feitas pelos melhores alfaiates da regi?o. Do lado do jovem pr?ncipe estavam algumas outras princesas, todas muito bem arrumadas e lindas, com cabelos de todos os tipos. Algumas usavam coques, outras amarrados ou presos com adere?os de pedras preciosas. Ser? que todas essas pessoas n?o notavam que sua princesa estava chorando?
 
 Prestando maior aten??o ele ouviu que uma das jovens princesas falava algo apontando para a princesa de Jot?o, e que depois disso ela come?ou a chorar mais e mais. Naquela hora ele n?o conseguiu entender bem, mas logo em seguida ele conseguiu entender toda a situa??o. Eles estavam fazendo piada de sua princesa. Por isso ela chorava tanto. E a? veio a confirma??o, ele conseguiu entender o que eles diziam.
 
-"Olha l? a princesa carv?ozinho com seu cabelo de palha."
+"Ser? que ela n?o lava aquele cabelo duro?"
 
 "N?o digam isso alto porque sen?o ela vai correr para o colo do papai para chorar!"
 
-"Ser? que ela n?o se toca de como est? rid?cula com este vestido? Ela nunca vai pertencer ao nosso grupo."
+"Ser? que ela n?o se toca de como est? rid?cula com este vestido? Por isso que n?o tem amigos!"
 
-Os guardas do castelo viam aquilo e ningu?m fazia nada. Os outros jovens que estavam ali no jardim viam aquilo e tamb?m n?o faziam nada, mas como algu?m v? uma situa??o daquelas e n?o faz nada? Era esse o tipo de pergunta que Jot?o se fazia. Mas, alguns segundos depois, a d?vida foi embora e tomou lugar um outro sentimento desconhecido ainda para Jot?o. Ele sentia que seu cora??o batia t?o forte como nunca batera antes, o som que fazia dentro de seu corpo era o mesmo som do velho tambor de seu pai mas mil vezes mais r?pido. Ele sentiu todo o seu corpo ficar quente, como se sangue tivesse virado fogo. A dor que sentia na perna menor tamb?m tinha ido embora. Ele apertava os dentes com uma for?a que poderia partir em dois uma rocha, suas m?os estavam t?o fechadas que as flores que antes era o presente da princesa j? estavam mortas.
+Os guardas do castelo viam aquilo e n?o faziam nada. Na verdade, o pr?prio rei sabia que sua filha era alvo de coment?rios maldosos desse tipo mas resolvia n?o se envolver, porque julgava ser coisa de crian?as. Os outros jovens que estavam ali no jardim viam aquilo e tamb?m n?o faziam nada, mas como algu?m v? uma situa??o daquelas e n?o faz nada? Era esse o tipo de pergunta que Jot?o se fazia. Mas, alguns segundos depois, a d?vida foi embora e tomou lugar um outro sentimento desconhecido ainda para Jot?o. Ele sentia que seu cora??o batia t?o forte como nunca batera antes, o som que fazia dentro de seu corpo era o mesmo som do velho tambor de seu pai mas mil vezes mais r?pido. Ele sentiu todo o seu corpo ficar quente, como se sangue tivesse virado fogo. A dor que sentia na perna menor tamb?m tinha ido embora. Ele apertava os dentes com uma for?a que poderia quebrar as nozes de Natal com facilidade, suas m?os estavam t?o fechadas que as flores que antes era o presente da princesa j? estavam mortas.
 
 Tudo aquilo que Jot?o sentia mas n?o entendia era ira. Ele nunca tinha sentido isso antes, nunca tinha vivido algo como aquilo. Em seu cora??o s? havia a necessidade de proteger sua princesa daqueles malfeitores, e sem ao menos perceber o que estava fazendo deu grito t?o alto, mas t?o alto, que todos os p?ssaros que estava ali perto voaram assustados. ? isso o que a ira faz em nossos cora??es, ficamos nervosos, n?o medimos nossas a??es. E, aquele momento era o momento de Jot?o p?r para fora tudo o que sentia. Foram anos pensando o porqu? da fuga de seus pais, anos ouvindo piadas dos outros animais da floresta, anos sentindo medo e agora aquilo. A ?nica pessoa que havia aceitado Jot?o como ele realmente ?, que tinha s? mostrado o que era o amor para ele estava sendo humilhada por outras pessoas. Isso ele n?o podia tolerar.
 
@@ -94,12 +94,9 @@ A f?ria em Jot?o era t?o grande que as ?rvores em seu caminho eram derrubadas co
 
 A princesa esfregava os pr?prios olhos achando que estava em algum tipo de sonho e olhava fixamente para Jot?o que correspondeu o olhar, indo ao seu encontro. Mesmo em um cen?rio igual aquele ela n?o sentia medo de Jot?o, na verdade, ela n?o conseguia sentir medo dele. De alguma forma ela apenas sentia que ele n?o iria machucar ningu?m, muito menos ela.
 
-Assim que Jot?o encontrou a princesa, ele se virou rapidamente de costas para ela. Com uma m?o voltada para atr?s protegia ela e com a outra afastava quem tentava chegar perto. Jot?o estava t?o nervoso que havia esquecido como falar, como formar frases, ele s? conseguia fazer ru?dos que lembravam palavras. Com muita dificuldade, ele berrava:
+Assim que Jot?o encontrou a princesa, ele se virou rapidamente de costas em uma posi??o defensiva, com uma m?o atr?s para protege-la e com outra, ? frente, afastava quem tentava chegar perto. Jot?o estava t?o nervoso que havia esquecido como falar, como formar frases, ele s? conseguia fazer ru?dos que lembravam palavras. Com muita dificuldade, ele berrava:
 
 'SSsssssaaaaaaaiiiiiiiii'
 
 'Lllllooooooooongeee'
 
-Iniciar pr?ximo cap?tulo com o combate do pr?ncipe e Jot?o.
-
-ele corre perigo ela salva ele
