@@ -94,7 +94,7 @@ A f?ria em Jot?o era t?o grande que as ?rvores em seu caminho eram derrubadas co
 
 A princesa esfregava os pr?prios olhos achando que estava em algum tipo de sonho e olhava fixamente para Jot?o que correspondeu o olhar, indo ao seu encontro. Mesmo em um cen?rio igual aquele ela n?o sentia medo de Jot?o, na verdade, ela n?o conseguia sentir medo dele. De alguma forma ela apenas sentia que ele n?o iria machucar ningu?m, muito menos ela.
 
-Assim que Jot?o encontrou a princesa, ele se virou rapidamente de costas em uma posi??o defensiva, com uma m?o atr?s para protege-la e com outra, ? frente, afastava quem tentava chegar perto. Jot?o estava t?o nervoso que havia esquecido como falar, como formar frases, ele s? conseguia fazer ru?dos que lembravam palavras. Com muita dificuldade, ele berrava:
+Assim que Jotão encontrou a princesa, ele se virou rapidamente de costas em uma posição defensiva, com uma mão atrás para protege-la e com outra, à frente, afastava quem tentava chegar perto. Jotão estava tão nervoso que havia esquecido como falar, como formar frases, ele só conseguia fazer ruídos que lembravam palavras. Com muita dificuldade, ele berrava:
 
 'SSsssssaaaaaaaiiiiiiiii'
 
