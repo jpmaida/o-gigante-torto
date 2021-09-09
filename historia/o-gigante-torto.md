@@ -76,7 +76,7 @@ Jotão viu aquele rapaz e logo deduziu que devia ser algu?m importante, assim co
 
 Prestando maior aten??o ele ouviu que uma das jovens princesas falava algo apontando para a princesa de Jotão, e que depois disso ela come?ou a chorar mais e mais. Naquela hora ele não conseguiu entender bem, mas logo em seguida ele conseguiu entender toda a situa??o. Eles estavam fazendo piada de sua princesa. Por isso ela chorava tanto. E a? veio a confirma??o, ele conseguiu entender o que eles diziam.
 
-"Ser? que ela não lava aquele cabelo duro?"
+"Será que ela não percebe que não se encaixa aqui?"
 
 "N?o digam isso alto porque senão ela vai correr para o colo do papai para chorar!"
 
@@ -112,4 +112,20 @@ O príncipe viu que sua espada nem tinha feito cócegas no gigante, e em um pisc
 
 Jotão arrancou a força a espada do prícipe de sua mão e entortou a lâmina como se fosse um galho. O príncipe, tão confiante de seu ataque, estava completamente desesperado e tinha como certo sua morte. Mas, ao contrário do que todos pensavam, Jotão não atacou o príncipe, mas sim, jogou a espada de volta ao dono. A espada que antes era motivo de tanto orgulho por causa de sua beleza agora parecia o cabo de um guarda-chuva. A princesa, como principal espectadora daquele show, viu tudo aquilo e ficou feliz de ver que seu doce e amado gigante não devolvia com violência todos os ataques. Ela tinha certeza da bondade do coração de Jotão.
 
-De repente, é ouvido um som ...
+De repente é ouvido um som no castelo, um sino havia sido tocado, o sinal de alerta tinha sido dado. Guardas e mais guardas saíram do castelo para o jardim, todos de armadura e armas em punho para defender os nobres da ameaça, ainda desconhecida. Os primeiros guardas chegaram e viram o que tinha acontecido com o jardim, toda a destruição causada, mas ainda não tinham ideia como aquilo tinha sido causado. Gritos de ordem foram dados:
+
+'Encontrem a princesa e protejam a todo custo.'
+
+Alguns dos nobres que estavam no jardim foram em direção aos guardas procurando proteção, disseram que havia um gigante no jardim e que ele estava com a princesa. O capitão da guarda real não acreditou.
+
+'Um gigante, pfffff!'
+'Digam logo! Quem causou esta bagunça? Onde está a princesa?'
+
+O príncipe, humilhado por ter perdido a batalha para Jotão, viu a oportunidade para a vingança perfeita e disse:
+
+'Ele está ali, aquela besta horrível! Ele sequestrou a princesa, vai levá-la para seu ninho e nunca mais a veremos.'
+
+Quando o capitão da guarda se virou viu Jotão, ele mesmo não acreditava no que estava vendo, os gigantes ainda existiam. Parecia que o próprio tempo tinha parado, que tudo estava em câmera lenta e que cada segundo durava um ano. O capitão envergava Jotão mas achava que era algum tipo de alucinação ou magia, os gigantes não existem mais, ele achava. Mas, como ele era um guarda com muitos anos de treinamento esse sentimento não durou muito tempo, e imediamentamente, disse:
+
+'Posições de batalha! Nossa prioridade é salvar a princesa, custe o que custar.'
+
