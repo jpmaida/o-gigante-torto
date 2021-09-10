@@ -125,7 +125,31 @@ O príncipe, humilhado por ter perdido a batalha para Jotão, viu a oportunidade
 
 'Ele está ali, aquela besta horrível! Ele sequestrou a princesa, vai levá-la para seu ninho e nunca mais a veremos.'
 
-Quando o capitão da guarda se virou viu Jotão, ele mesmo não acreditava no que estava vendo, os gigantes ainda existiam. Parecia que o próprio tempo tinha parado, que tudo estava em câmera lenta e que cada segundo durava um ano. O capitão envergava Jotão mas achava que era algum tipo de alucinação ou magia, os gigantes não existem mais, ele achava. Mas, como ele era um guarda com muitos anos de treinamento esse sentimento não durou muito tempo, e imediamentamente, disse:
+Quando o capitão da guarda se virou viu Jotão, ele mesmo não acreditava no que estava vendo, os gigantes ainda existiam. Parecia que o próprio tempo tinha parado, que tudo estava em câmera lenta e que cada segundo durava um ano. O capitão enxergava Jotão mas achava que era algum tipo de alucinação ou magia, os gigantes não existem mais ele achava. Mas, como era um guarda com muitos anos de treinamento esse sentimento não durou muito tempo, e imediamentamente, disse:
 
 'Posições de batalha! Nossa prioridade é salvar a princesa, custe o que custar.'
 
+Os guardas foram se enfileirando com escudos a frente e lanças acima formando assim uma parede de escudos. Cada um defendia o homem à sua esquerda e com a lança, posta por cima de cada escudo, espetava qualquer um que ameaçasse romper aquela defesa.
+
+Três fileiras de guardas imperiais prontos para batalha se aproximavam de Jotão. A princesa já tinha entendido que aquela era uma briga que seu adorável gigante não poderia ganhar. Então, enquanto os guardas se aproximavam, ela deu um puxão no colete de Jotão para alerta-lo do perigo. Mas, Jotão ainda tomado pela fúria respondeu com um grunhido como se fosse um lobo selvagem e essa atitude assustou a princesa, fazendo-a recuar alguns passos.
+
+A atitude de espanto da princesa fez Jotão se acalmar e voltar a si. Seu semblante tinha mudado quase que automaticamente, e somente então, tinha percebido o que tinha feito. Jotão não tinha noção do tamanho da sua força, então imagine o susto que tomou quando viu o que jardim todo destruído. Ele olhou para a princesa e a viu encolhida com medo. Medo de que ele a machucasse também e então disse:
+
+'O que aconteceu aqui? Onde estão aquelas pessoas que estavam fazendo você chorar? Para onde elas foram?'
+
+A princesa tinha entendido que Jotão tinha voltado a ser seu doce gigante torto e respondeu:
+
+'Você chegou e espantou elas. O alerta foi dado no castelo, você precisa ir embora, a guarda imperial vai chegar a qualquer momento e eles já devem ter dado a minha falta. Se eles me virem com você vão achar que você quer me machucar.'
+
+Era tarde demais, a guarda já tinha chegado, acompanhado pelo príncipe que via naquele momento sua vingança. O capitão da guarda então gritou:
+
+'O gigante tem a princesa, ataquem homens, ataquem!'
+
+A princesa tentava dizer que Jotão que aquilo era somente um engano e que seu gigante não tinha culpa mas não foi ouvida. O primeiro golpe de lança foi dado, uma estocada que causou um leve corte no braço do gigante, e naquele momento, Jotão sentiu dor. Depois do primeiro golpe vieram outros, e rapidamente, Jotão se viu encurralado com os braços a frente se protegendo como podia. A princesa continuava gritando apelos mas não era ouvida, até que então começou a dizer:
+
+'Corrrra Jotão, corra, escape com vida!'
+
+No meio daquela confusão de armaduras, escudos, armas se chocando e gritos sendo dados, Jotão conseguiu ouvir a voz de sua doce princesa como se fosse uma luz na escuridão. Sem pensar duas vezes pegou um banco de mármore pesado que havia ali perto e jogou na direção dos guardas.
+
+banco causa estrago aos guardas
+jotão escapa com ajuda da princesa
