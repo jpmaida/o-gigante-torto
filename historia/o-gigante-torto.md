@@ -145,11 +145,23 @@ Era tarde demais, a guarda já tinha chegado, acompanhado pelo príncipe que via
 
 'O gigante tem a princesa, ataquem homens, ataquem!'
 
-A princesa tentava dizer que Jotão que aquilo era somente um engano e que seu gigante não tinha culpa mas não foi ouvida. O primeiro golpe de lança foi dado, uma estocada que causou um leve corte no braço do gigante, e naquele momento, Jotão sentiu dor. Depois do primeiro golpe vieram outros, e rapidamente, Jotão se viu encurralado com os braços a frente se protegendo como podia. A princesa continuava gritando apelos mas não era ouvida, até que então começou a dizer:
+A princesa tentava dizer que aquilo era somente um engano e que seu gigante não tinha culpa mas não foi ouvida. O primeiro golpe de lança foi dado, uma estocada que causou um leve corte no braço do gigante, e naquele momento, Jotão sentiu dor. Depois do primeiro golpe vieram outros, e rapidamente, Jotão se viu encurralado com os braços a frente se protegendo como podia das espetadas. A princesa continuava gritando apelos mas não era ouvida, até que então começou a dizer:
 
-'Corrrra Jotão, corra, escape com vida!'
+'Corra Jotão, corra, escape com vida!'
 
 No meio daquela confusão de armaduras, escudos, armas se chocando e gritos sendo dados, Jotão conseguiu ouvir a voz de sua doce princesa como se fosse uma luz na escuridão. Sem pensar duas vezes pegou um banco de mármore pesado que havia ali perto e jogou na direção dos guardas.
 
-banco causa estrago aos guardas
-jotão escapa com ajuda da princesa
+O banco derrubou a primeira fileira de guardas que formavam uma parede de escudos contra o gigante. Toda a formação na qual o capitão tinha gastado tanto esforço em montar tinha se transformado em plena bagunça, homens caídos em cima de homens, alguns escorregando e outros ainda sem entender o que tinha atingido o grupo. E, foi nesse momento que Jotão viu a oportunidade para sua fuga.
+
+Enquanto alguns dos guardas se esforçavam para levantar, Jotão saiu numa investida como se fosse um coelho e correu para dentro da floresta. Nem ele mesmo acreditava na velocidade que estava correndo, parecia que o pé torto tinha se curado como um passe de mágica. Não demorou muito até que a tropa de guardas se organizasse e entrasse procurando Jotão pela floresta.
+
+O príncipe, ainda se sentindo humilhado pelo que tinha acontecido, também tinha sido derrubado pelo banco voador, mas não porquê ele o atingira, mas sim, porque um dos homens da guarda imperial tinha esbarrado nele durante a confusão e ele mesmo pisara em sua própria capa e caíra de bunda no chão. Ele estava sentindo que alguém estava faltando e enquanto via os homens adentrando a floresta, para perseguir o gigante, também viu que a princesa tinha sumido. Tentou avisar os guardas mas ninguém deu ouvidos, e então pensou:
+
+"Durante a fuga ele deve ter levado ela para usar como troca caso o encontrássemos. Mas como ele conseguir levar ela? Ah sim! Ele deve ter enfiado ela dentro de um daqueles bolsos nojentos de gigantes que aquele colete horrível dele tem."
+
+Mal sabia o jovem e tolo príncipe que a princesa não tinha sido raptada, mas sim, que tinha ida atrás de Jotão pois era ela quem salvaria sua vida.
+
+O rei é avisado
+jotão é encurralado
+no momento vital a princesa salva jotão
+o rei vê o episódio
