@@ -175,7 +175,15 @@ E ele responde:
 
 'Não temos tempo, eles estão vindo, temos que ir embora. Pelos pêlos da minha barba! Como eu fui deixar isso acontecer ? Mas também como podia deixar eles fazer isso com ela, ninguém fazia nada, todos só riam e ela só chorava. O que faço ? E as galinhas, o que vai ser delas ? E o lago ? E as flores ?'
 
-Lolô não conseguia entender nada que Jotão falava, mas ela conseguia perceber que algo muito ruim tinha acontecido com seu amigo pois ela nunca tinha o visto assim.
+Lolô não conseguia entender nada que Jotão falava, mas ela conseguia perceber que algo muito ruim tinha acontecido com seu amigo pois ela nunca tinha o visto assim. Devagar, ela foi tentando acalmar ele e pediu para que ele contasse lentamente o que tinha acontecido. Então, em meio de soluções, choro e certo desespero, Jotão contou a Lolô o que tinha visto e o que tinha feito. Lolô podia ser só uma ovelha mas sabia bem o que aquilo significava, eles não tinham tempo a perder.
+
+De uma forma enérgica, ela interrompe Jotão e diz:
+
+'Não téééémos tempo a perder, entre na cabana e pegue tudo o que cabe na sua bolsa. Eu consigo correr, solte as galinhas e vamos junto fugir daquéééé.'
+
+Em passos largos Jotão foi para sua cabana, pegou sua bolsa de gigante e dentro dela pôs tudo o que julgava ser importante. Pôs a foto de seus pais, algumas roupas, ferramentas, comida e tudo mais que achava que podia ser útil na viagem. Quando saiu Lolô já estava a sua espera, eles foram até o galinheiro e abriram a portinha que prendia as galinhas. Elas saíram correndo felizes achando que era mais um dia de brincadeiras na grama. Tudo já estava pronto para a partida. 
+
+De repente que eles houviram o som de vozes humanas se aproximando
 
 
 jotão é encurralado
