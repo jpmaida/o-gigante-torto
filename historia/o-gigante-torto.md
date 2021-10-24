@@ -1,12 +1,12 @@
 # O gigante torto
 
-Conhe?a Jotão, um gigante, mas não um daqueles gigantes que p?em medo nas pessoas, Jotão ? diferente. Jotão cuida dos animais feridos e das plantinhas que foram pisadas que encontra quando anda pela floresta. Ele mora em uma cabana de madeira feita por seus pais quando eles se mudaram para a floresta muitos anos atr?s. Ele usa roupas de l?, tem uma barba grande, ? todo cabeludo e ? tão alto que sua cabe?a quase bate na copa de algumas ?rvores.
+Conheça Jotão, um gigante, mas não um daqueles gigantes que põem medo nas pessoas, Jotão é diferente. Jotão cuida dos animais feridos e das plantinhas que foram pisadas que encontra quando anda pela floresta. Ele mora em uma cabana de madeira feita por seus pais quando eles se mudaram para a floresta muitos anos atrás. Ele usa roupas de lá, tem uma barba grande, é todo cabeludo e é tão alto que sua cabeçaa quase bate na copa de algumas árvores.
 
-A l? ele tira da sua amiga ovelha, Lol?. Eles se conheceram em um momento em que Lol? estava passando por dificuldades pois ela tinha se desgarrado de seu rebanho e quebrou uma pata andando pela floresta. Ela sentiu muita dor e ficou berrando 'b???? b????' a noite inteira para que fosse encontrada. Quando ela menos esperava come?ou a ouvir passos profundos 'tuuuuuuunnnn tuuuuuuunnnn', ela pensou: 'chegou a minha hora'. De repente, ela viu uma sombra negra imensa entre as ?rvores e ouviu o barulho de folhas mexendo. Lol? estava com muito medo, ela era apenas uma ovelhinha, não sabia andar sozinha. O medo era tanto que desmaiou.
+A l? ele tira da sua amiga ovelha, Lol?. Eles se conheceram em um momento em que Lol? estava passando por dificuldades pois ela tinha se desgarrado de seu rebanho e quebrou uma pata andando pela floresta. Ela sentiu muita dor e ficou berrando 'béééé béééé' a noite inteira para que fosse encontrada. Quando ela menos esperava come?ou a ouvir passos profundos 'tuuuuuuunnnn tuuuuuuunnnn', ela pensou: 'chegou a minha hora'. De repente, ela viu uma sombra negra imensa entre as ?rvores e ouviu o barulho de folhas mexendo. Lol? estava com muito medo, ela era apenas uma ovelhinha, não sabia andar sozinha. O medo era tanto que desmaiou.
 
 No dia seguinte, ela acordou em uma clareira cheia de flores, cercada por ?rvores lindas e um lago brilhante e pensou: 'estou no para?so b????'. Ela tinha at? se esquecido da dor na pata, mas antes que pudesse descansar ela ouviu de novo o mesmo 'tuuuuuuunnnn tuuuuuuunnnn'. Ela ficou desesperada e come?ou a olhar para todos os lados, pensando: 'da onde est? vindo esse barulho?'. Quando ela olhou para atr?s l? estava Jotão com seu sorisso largo e barba longa, ele disse: 'oi'. Lol? nunca tinha ouvido uma voz tão grossa como aquela mas tamb?m tão bonita, ela ficou mais confusa ainda, o medo tinha indo embora, ela se sentia bem ao lado de Jotão.
 
-Ela perguntou 'oi, quem b???? voc? ?' e ele respondeu 'eu sou Jotão, eu sou um gigante e moro aqui, encontrei voc? na floresta ontem desmaiada'. Então ela se lembrou da sombra da floresta e do som dos passos, por isso era tão profundo, ele ? um gigante, e tamb?m se lembrou de que havia quebrado a pata. Mas, quando foi olhar para a pata ela percebeu que havia uma tala enrolada com um pano e que não havia mais dor, Jotão havia cuidado dela. Ela ficou muito feliz e come?ou a berrar de alegria 'b???? b???? b????' e Jotão come?ou a gargalhar de felicidade. Eles viraram grandes amigos e Lol? não queria ir mais embora daquele lugar.
+Ela perguntou 'oi, quem béééé você ?' e ele respondeu 'eu sou Jotão, eu sou um gigante e moro aqui, encontrei voc? na floresta ontem desmaiada'. Então ela se lembrou da sombra da floresta e do som dos passos, por isso era tão profundo, ele ? um gigante, e tamb?m se lembrou de que havia quebrado a pata. Mas, quando foi olhar para a pata ela percebeu que havia uma tala enrolada com um pano e que não havia mais dor, Jotão havia cuidado dela. Ela ficou muito feliz e come?ou a berrar de alegria 'b???? b???? b????' e Jotão come?ou a gargalhar de felicidade. Eles viraram grandes amigos e Lol? não queria ir mais embora daquele lugar.
 
 Eles fizeram então um trato, Lol? iria dar a l? dela para Jotão para que ele pudesse fazer roupas do tamanho dele. Ele não usava roupas boas tinha tempo, afinal de contas não existem muitos roupas para gigantes por a? n? !? Em troca Jotão deixava Lol? ficar ali convivendo entre as flores, pastando nos campos e brincando no lago. Pronto! Eles tinham um trato.
 
@@ -159,9 +159,25 @@ O príncipe, ainda se sentindo humilhado pelo que tinha acontecido, também tinh
 
 "Durante a fuga ele deve ter levado ela para usar como troca caso o encontrássemos. Mas como ele conseguir levar ela? Ah sim! Ele deve ter enfiado ela dentro de um daqueles bolsos nojentos de gigantes que aquele colete horrível dele tem."
 
-Mal sabia o jovem e tolo príncipe que a princesa não tinha sido raptada, mas sim, que tinha ida atrás de Jotão pois era ela quem salvaria sua vida.
+Mal sabia o jovem e tolo príncipe que a princesa não tinha sido raptada, mas sim, que tinha ido atrás de Jotão pois era ela quem salvaria sua vida.
 
-O rei é avisado
+O rei é avisado do incidente e quase cai virado para atrás com o susto que levou. Ele, na verdade, já estava aflito pois foi interrompido no meio de seu banquete pelo som do sinal da guarda real, mas nunca que iria esperar que logo o seu reino fosse assolado por um gigante. Ninguém no salão, onde o rei e os outros nobres estavam, conseguiam acreditar no que tinha acontecido, fazia muito tempo que os gigantes não eram mais vistos. E, para piorar a situação, a guarda real não conseguira impedir que o nefesto gigante levasse sua linda filha. Era essa a história que o princípe havia lhe contado. Sim, estou me referindo àquele príncipe que tinha ficado com tanto medo de Jotão que parecia uma galinha correndo de um lado para o outro, cacarejando.
+
+Imediamente o rei mobiliza suas tropas domésticas e manda chamar os melhores guerreiros do reino para a caçada que iria ter início. O príncipe começa a sentir o gosto da vingança em sua boca e imagina como iria cair nas graças do grande rei quando lhe contasse que tinha sido ele o salvador da sua filha.
+
+Enquanto isso na floresta, Jotão corre por sua vida. O suor escorre frio em sua testa e seu coração não pára de bater. Mais uma vez aquela sensação horrível, os pés pareciam que não encontravam mais o chão, o coração parecia que sairia pela boca e tudo ao seu redor parecia girar. Sem perceber, Jotão faz o caminho de volta a sua casa e automaticamente se espanta com a calma do lugar onde mora. Lá tudo é tão pacífico e lindo que o medo não faz mais sentido.
+
+Lolô vê seu amigo gigante chegando e percebe que tinha algo errado ali, Jotão parecia que tinha visto um fantasma. Ela se aproxima e pergunta: 
+
+'O que houvéééé ?' 
+
+E ele responde:
+
+'Não temos tempo, eles estão vindo, temos que ir embora. Pelos pêlos da minha barba! Como eu fui deixar isso acontecer ? Mas também como podia deixar eles fazer isso com ela, ninguém fazia nada, todos só riam e ela só chorava. O que faço ? E as galinhas, o que vai ser delas ? E o lago ? E as flores ?'
+
+Lolô não conseguia entender nada que Jotão falava, mas ela conseguia perceber que algo muito ruim tinha acontecido com seu amigo pois ela nunca tinha o visto assim.
+
+
 jotão é encurralado
 no momento vital a princesa salva jotão
 o rei vê o episódio
