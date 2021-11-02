@@ -161,7 +161,7 @@ O príncipe, ainda se sentindo humilhado pelo que tinha acontecido, também tinh
 
 Mal sabia o jovem e tolo príncipe que a princesa não tinha sido raptada, mas sim, que tinha ido atrás de Jotão pois era ela quem salvaria sua vida.
 
-O rei é avisado do incidente e quase cai virado para atrás com o susto que levou. Ele, na verdade, já estava aflito pois foi interrompido no meio de seu banquete pelo som do sinal da guarda real, mas nunca que iria esperar que logo o seu reino fosse assolado por um gigante. Ninguém no salão, onde o rei e os outros nobres estavam, conseguiam acreditar no que tinha acontecido, fazia muito tempo que os gigantes não eram mais vistos. E, para piorar a situação, a guarda real não conseguira impedir que o nefesto gigante levasse sua linda filha. Era essa a história que o princípe havia lhe contado. Sim, estou me referindo àquele príncipe que tinha ficado com tanto medo de Jotão que parecia uma galinha correndo de um lado para o outro, cacarejando.
+O rei é avisado do incidente e quase cai virado para atrás com o susto que levou. Ele, na verdade, já estava aflito pois foi interrompido no meio de seu banquete pelo som do sinal da guarda real, mas nunca que iria esperar que logo o seu reino fosse assolado por um gigante. Ninguém no salão, onde o rei e os outros nobres estavam, conseguiam acreditar no que tinha acontecido, fazia muito tempo que os gigantes não eram mais vistos. E, para piorar a situação, a guarda real não conseguira impedir que o nefesto gigante levasse sua linda filha. Era essa a história que o princípe havia lhe contado. Sim, estou me referindo àquele príncipe que tinha ficado com tanto medo de Jotão que parecia uma galinha desvairada correndo de um lado para o outro.
 
 Imediamente o rei mobiliza suas tropas domésticas e manda chamar os melhores guerreiros do reino para a caçada que iria ter início. O príncipe começa a sentir o gosto da vingança em sua boca e imagina como iria cair nas graças do grande rei quando lhe contasse que tinha sido ele o salvador da sua filha.
 
@@ -183,9 +183,41 @@ De uma forma enérgica, ela interrompe Jotão e diz:
 
 Em passos largos Jotão foi para sua cabana, pegou sua bolsa de gigante e dentro dela pôs tudo o que julgava ser importante. Pôs a foto de seus pais, algumas roupas, ferramentas, comida e tudo mais que achava que podia ser útil na viagem. Quando saiu Lolô já estava a sua espera, eles foram até o galinheiro e abriram a portinha que prendia as galinhas. Elas saíram correndo felizes achando que era mais um dia de brincadeiras na grama. Tudo já estava pronto para a partida. 
 
-De repente que eles houviram o som de vozes humanas se aproximando
+De repente, eles escutam. Entre o som que o vento fazia nas folhas das árvores e na grama que balançava, eles ouviram o som de vozes humanas, passos e de metal se aproximando. Já era tarde. Antes que Jotão pudesse esboçar qualquer reação o primeiro homem da guarda saiu detrás de um arbusto e viu o gigante de partida. Rapidamente, ele chama os outros homens, dizendo:
 
+'Encontramos o gigante e seu covil, venham!'
 
-jotão é encurralado
+Mais homens de armadura com lanças e escudos aparecem e começam a fazer uma formação em linha reta contra Jotão, escudos à frente, lanças atrás. Em um ritmo único homens batem os pés no chão e espadas nos escudos, ameaçam o gigante dizendo que seu fim está próximo e com outras palavras horríveis que Jotão nunca tinha ouvido. E, mais uma vez, aquele som estranho, ancestral, toma conta de Jotão, mas ao contrário da primeira vez, quando foi tomado pela raiva em ver a princesa sendo humilhada, uma tranquilidade tomava conta do espírito do gigante. Ele sentia que aquela era a hora que ele teria que lutar pela sua própria vida.
+
+Lolô olhava para o gigante sem entender o que estava acontecendo e repetia:
+
+'vamos éééémbora, vamos sair daqui, por que você está parado ?'
+
+O gigante olhou de volta para sua amiga, sua primeira amiga, àquela que tinha lhe mostrado a doce valor da amizade. Com suas imensas mãos pegou a ovelha e a pôs em cima de grande pedra que dava caminho para as colinas do vale onde morava. Lolô não estava entendendo mais nada do que acontecia, pensava que o gigante tinha enloquecido e quando percebeu, ele estava olhando para ela com um sorriso larga no rosto, como se fosse o dia mais feliz da vida dele. Jotão então passou sua imensa mão pelo pêlo da ovelha e disse:
+
+'Você mudou minha vida, obrigado por tudo.'
+
+Jotão se vira para a guarda imperial, sem o sorriso no rosto. O som que tinha começado a ouvir agora estava mais forte, ele sentia como se gerações de gigantes que tinham passado por aquela terra gritassem seu nome, seu coração tinha um pulsar tão forte como um trovão. Então ele, o gigante torto, o gigante que todos caçoavam começou sua investida. Iniciou com um caminhar tranquilo, parou atrás da pedra que dava suporte ao moinho de água que usava para moer grãos e se abaixou. Os guardas achando que o gigante tinha se amendrontado continuaram caçoando, mas de repente, sentiram o chão tremer como se fosse um terremoto e um urro capaz de por medo em qualquer fera foi dado. O silêncio se instaurou na tropa, os insultos pararam e quando eles menos esperavam Jotão estava erguendo a rocha acima da cabeça, se preparando para lança-la.
+
+O capitão da guarda percebeu que seus homens tinham sentido o impacto da ira do gigante e estavam paralisados pelo medo, então disse:
+
+'Ele vai jogar a rocha na gente, disperçar, ataquem pelos flancos!'
+
+Tarde demais! Jotão tinha sido mais rápido e arremessado o grande bloco de pedra com toda sua força. A rocha em sua trajetória veio em alta velocidade, rolando pelo chão irregular, quicando e atinge alguns homens. O caos estava espalhado. A rocha atinge alguns homens diretamente tirando eles da luta e derrubando outros. Um dos guardas arremesa uma lança que nem acerta Jotão mas pára perto, fincada no chão. O gigante pega a lança, pequena para as mãos de um gigante e joga de volta. A força foi tão grande que a lança bate numa árvore e a atravessa, parecendo uma das maças no palito que Jotão adorava comer.
+
+Homens com cavalos chegam aonde a luta acontecia, um deles investe diretamente contra o gigante que com sua mão imensa dá um tapa no cavaleiro. O cavaleiro é jogado no lago como se fosse a ração que Jotão dava para os peixes. Lolô via toda a batalha do lugar que Jotão tinha posto, estava tão nervosa que nem conseguia falar, só berrava como no dia que se desgarrou de seu rebanho.
+
+Outro homem atira flechas contra Jotão que cravam em seus braços como os espinhos da roseira que ele tão gostava. O gigante bate com seu pé no chão e faz a terra tremer com tanta força que homens caem e cavalos ficam com medo de ir em direção ao gigante. Entretanto, quando menos se esperava, um dos cavaleiros traz uma corda com um gancho amarrado. Ele gira o gancho montado em seu cavalo e faz um arremesso que prende na gola do colete do gigante. Jotão cai para atrás.
+
+Essa era a oportunidade que os poucos homens que sobravam queriam, dessa forma eles poderiam conter o gigante e descobrir onde estava a princesa. Alguns tentam subir em cima dos braços e pernas do gigante mas ele se debate e eles são jogados longe. Jotão consegue ficar de joelho, usava sua perna mais curta e quando menos esperava outro gancho agarra em sua roupa. Ele luta contra a força dos cavalos que puxam e relincham. Um terceiro gancho é lançado e o gigante cai novamente. Os guardas não perderiam essa oportunidade e todos partem para cima do gigante que agora não consegue se mover mais.
+
+Ele grita e chora pedindo liberdade.
+
+'Me soltem! Eu não fiz nada para ninguém. Por que estão fazendo isso comigo?'
+
+Os homens riem e comemoram a vitória em cima do gigante, dizem que seus dias de tirania e barbaridades estão acabados. Jotão tenta arrebentar as cordas com toda sua força, mas são muitas e estão muito apertadas, não tinha escapatória. O gigante sabia que aquele era seu fim e pensa em Lolô, na princesa, na sua casa que amava tanto com suas galinhas pequeninas, nas risadas que deram juntos, em tudo o que viveu, e fica feliz de ter tido essa chance de ser feliz. Principalmente fica feliz porque por alguns momentos conseguiu esquecer do medo de ficar sozinho, da raiva que tinham dos gigantes a qual ele não entendia e da zombaria que faziam por causa de seu pé torto. Se aquele fosse seu fim, ele aceitaria.
+
+O rei e o príncipe chegam ....
+
 no momento vital a princesa salva jotão
 o rei vê o episódio
