@@ -237,4 +237,18 @@ O rei enxerga razão em cada palavra do príncipe e grita com Jotão perguntando
 
 Jotão chorava de desespero, parecia que suas palavras não faziam sentido para aquelas pessoas mesmo ele dizendo que não pegou ninguém. Então, de repente ele conseguiu entender tudo que estava acontecendo. Ele tinha conseguido ouvir o que tinha sido falado no ouvido do rei e reconheceu a pessoa, era o homem que tinha humilhado sua princesa e a feito chorar. Uma sensação de vazio dominou sua mente, ele estava perdido em seus pensamentos, tudo fazia sentido agora. A perseguição pela floresta, a batalha com a guarda imperial, o fato de ninguém dar ouvido a suas palavras, tudo! O princípe estava se vingando de Jotão pelo o que ele tinha feito no jardim, pela forma que ele tinha defendido a princesa. Todo esse entendimento acalentou seu coração, e fez suas próximas palavras sairem como se fossem um rugido de leão.
 
-''
+'Eu não peguei a princesa, eu só fui defendê-la. Ele estava humilhando ela, fazendo ela chorar, todos estavam rindo dela. Porque estou sendo punido por defender quem eu amo?'
+
+O príncipe vê a chance do seu plano ser arruinado e responde em seguida.
+
+'Senhor rei, ele mente. Esses gigantes são especialistas na arte da mentira, nos enganam com sua aparência pacífica mas só querem causar o mal. Ele com certeza sabe onde está a princesa. Eu o vi arrastando a princesa e botando ela dentro daquela bolsa nojenta feita de trapos.'
+
+O rei, ainda desconfiado do gigante, manda os guardas vasculharem a cabana do gigante e seus pertences. Eles entram, destroem, espetam com suas lanças e espadas mas não encontram nada. O gigante fica de coração partido de ver suas coisas sendo remexidas e destruídas. O príncipe se deleita vendo tudo aquilo e a na sua boca é desenhado um sorriso cínico, cheio de dentes. Ele sentia que sua vitória está cada vez mais perto. O rei acreditava em tudo o que ele falava, ele só precisava agora despejar um pouco mais do seu veneno e encerrar a história.
+
+'Senhor rei, viu como ele mente descaradamente? Tenho certeza de que a princesa ainda está viva, escondida em algum lugar. Gigantes são criaturas malignas e mentirosas mas não burras. Encerre a vida desta patética criatura, arranque sua cabeça e vamos embora.'
+
+A paciência do rei já tinha chegado ao fim, ele tinha total certeza de que a culpa era do gigante e em nenhum momento se questionou sobre o que estava acontecendo ali. Com determinação, pediu ao capitão da guarda real sua espada, o qual atendeu o pedido de real de prontidão, e subiu em cima do gigante. Se posicionou em pé em cima do tórax e apontou a espada para baixo, em direção a cabeça do gigante.
+
+Jotão tinha entendido que chegara sua hora, fechou então os olhos e pensou em seus pais, logo estaria reunido com eles novamente. O rei olhava para o gigante de olhos fechados e juntava forças para dar o golpe de misericórdia, mas foi aí que aconteceu algo que ninguém esperava.
+
+Uma voz foi ouvida
