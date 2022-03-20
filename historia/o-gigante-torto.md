@@ -249,6 +249,13 @@ O rei, ainda desconfiado do gigante, manda os guardas vasculharem a cabana do gi
 
 A paciência do rei já tinha chegado ao fim, ele tinha total certeza de que a culpa era do gigante e em nenhum momento se questionou sobre o que estava acontecendo ali. Com determinação, pediu ao capitão da guarda real sua espada, o qual atendeu o pedido de real de prontidão, e subiu em cima do gigante. Se posicionou em pé em cima do tórax e apontou a espada para baixo, em direção a cabeça do gigante.
 
-Jotão tinha entendido que chegara sua hora, fechou então os olhos e pensou em seus pais, logo estaria reunido com eles novamente. O rei olhava para o gigante de olhos fechados e juntava forças para dar o golpe de misericórdia, mas foi aí que aconteceu algo que ninguém esperava.
+Jotão tinha entendido que chegara sua hora, fechou então os olhos e pensou em seus pais, logo estaria reunido com eles novamente. O rei olhava para o gigante de olhos fechados e juntava forças para dar o golpe de misericórdia, mas foi aí que aconteceu algo que ninguém esperava, uma voz foi ouvida. Primeiro por alguns guardas que se entreolharam e acharam que era obra de suas imaginações, mas logo todos começaram a ouvir. Era uma voz feminina que tentava dizer alguma coisa que ninguém entendia mas depois o som foi ficando mais claro.
 
-Uma voz foi ouvida
+'Paaarreeeemmm por favor, paaaareeeem !'
+
+O rei abaixa a espada apontada para o gigante e olha em volta, procurando da onde tinha vindo aquela voz. Vê alguns arbustos se mexendo e quando menos esperava vê uma correndo em direção aonde todos estavam reunidos. E, para sua surpresa, era sua filha ...
+
+princesa impede o castigo
+princesa conta a verdade
+principe é preso
+jotão perdoa o príncipe
