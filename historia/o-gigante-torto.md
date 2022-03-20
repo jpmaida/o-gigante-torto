@@ -203,21 +203,38 @@ O capitão da guarda percebeu que seus homens tinham sentido o impacto da ira do
 
 'Ele vai jogar a rocha na gente, disperçar, ataquem pelos flancos!'
 
-Tarde demais! Jotão tinha sido mais rápido e arremessado o grande bloco de pedra com toda sua força. A rocha em sua trajetória veio em alta velocidade, rolando pelo chão irregular, quicando e atinge alguns homens. O caos estava espalhado. A rocha atinge alguns homens diretamente tirando eles da luta e derrubando outros. Um dos guardas arremesa uma lança que nem acerta Jotão mas pára perto, fincada no chão. O gigante pega a lança, pequena para as mãos de um gigante e joga de volta. A força foi tão grande que a lança bate numa árvore e a atravessa, parecendo uma das maças no palito que Jotão adorava comer.
+Tarde demais! Jotão tinha sido mais rápido e arremessado o grande bloco de pedra com toda sua força. A rocha em sua trajetória veio em alta velocidade, rolando pelo chão irregular, quicando e atinge alguns homens. O caos estava espalhado. A rocha atinge alguns homens diretamente tirando eles da luta e derrubando outros. Um dos guardas arremesa uma lança que nem acerta Jotão mas pára perto, fincada no chão. O gigante pega a lança, pequena para as mãos de um gigante e joga de volta. A força foi tão grande que a lança bate numa árvore e a atravessa, parecendo uma das maçãs no palito que Jotão adorava comer.
 
 Homens com cavalos chegam aonde a luta acontecia, um deles investe diretamente contra o gigante que com sua mão imensa dá um tapa no cavaleiro. O cavaleiro é jogado no lago como se fosse a ração que Jotão dava para os peixes. Lolô via toda a batalha do lugar que Jotão tinha posto, estava tão nervosa que nem conseguia falar, só berrava como no dia que se desgarrou de seu rebanho.
 
 Outro homem atira flechas contra Jotão que cravam em seus braços como os espinhos da roseira que ele tão gostava. O gigante bate com seu pé no chão e faz a terra tremer com tanta força que homens caem e cavalos ficam com medo de ir em direção ao gigante. Entretanto, quando menos se esperava, um dos cavaleiros traz uma corda com um gancho amarrado. Ele gira o gancho montado em seu cavalo e faz um arremesso que prende na gola do colete do gigante. Jotão cai para atrás.
 
-Essa era a oportunidade que os poucos homens que sobravam queriam, dessa forma eles poderiam conter o gigante e descobrir onde estava a princesa. Alguns tentam subir em cima dos braços e pernas do gigante mas ele se debate e eles são jogados longe. Jotão consegue ficar de joelho, usava sua perna mais curta e quando menos esperava outro gancho agarra em sua roupa. Ele luta contra a força dos cavalos que puxam e relincham. Um terceiro gancho é lançado e o gigante cai novamente. Os guardas não perderiam essa oportunidade e todos partem para cima do gigante que agora não consegue se mover mais.
+Essa era a oportunidade que os poucos homens que sobravam queriam, dessa forma eles poderiam conter o gigante e descobrir onde estava a princesa. Alguns tentam subir em cima dos braços e pernas do gigante mas ele se debate e são jogados longe. Jotão consegue ficar de joelho, usava sua perna mais curta e quando menos esperava outro gancho agarra em sua roupa. Ele luta contra a força dos cavalos que puxam e relincham. Um terceiro gancho é lançado e o gigante cai novamente. Os guardas não perderiam essa oportunidade e todos partem para cima do gigante que agora não consegue se mover mais.
 
 Ele grita e chora pedindo liberdade.
 
 'Me soltem! Eu não fiz nada para ninguém. Por que estão fazendo isso comigo?'
 
-Os homens riem e comemoram a vitória em cima do gigante, dizem que seus dias de tirania e barbaridades estão acabados. Jotão tenta arrebentar as cordas com toda sua força, mas são muitas e estão muito apertadas, não tinha escapatória. O gigante sabia que aquele era seu fim e pensa em Lolô, na princesa, na sua casa que amava tanto com suas galinhas pequeninas, nas risadas que deram juntos, em tudo o que viveu, e fica feliz de ter tido essa chance de ser feliz. Principalmente fica feliz porque por alguns momentos conseguiu esquecer do medo de ficar sozinho, da raiva que tinham dos gigantes a qual ele não entendia e da zombaria que faziam por causa de seu pé torto. Se aquele fosse seu fim, ele aceitaria.
+Os homens riem e comemoram a vitória em cima do gigante, dizem que seus dias de tirania e barbaridades estão acabados. Jotão tenta arrebentar as cordas com toda sua força, mas são muitas e estão muito apertadas, não existe escapatória. O gigante sabia que aquele era seu fim e pensa em Lolô, na princesa, na sua casa que amava tanto com suas galinhas pequeninas, nas risadas que deram juntos, em tudo o que viveu, e fica feliz de ter tido essa chance de ser feliz. Principalmente fica feliz porque por alguns momentos conseguiu esquecer do medo de ficar sozinho, da raiva que tinham dos gigantes a qual ele não entendia e da zombaria que faziam por causa de seu pé torto. Se aquele fosse seu fim, ele estava pronto.
 
-O rei e o príncipe chegam ....
+O rei e o príncipe chegam. O que eles presenciam é um cenário de guerra, homens feridos, armaduras partidas, árvores quebradas e um gigate preso. O príncipe vê naquele momento a oportunidade de triunfo pela humilhação sofrida no episódio quando Jotão adentrou o palácio real. A certeza de que a vida do gigante chegaria ao fim aumentava em seu peito e ele viu nisso a chance de envenenar a cabeça do rei para que o gigate fosse punido imediatamente.
 
-no momento vital a princesa salva jotão
-o rei vê o episódio
+Já o rei olhava para todo aquele cenário e para o gigante, com raiva e desprezo, pois acreditava que era ele o responsável pelo sumiço da sua filha. Então, ele se ajoelhou perto aonde jazia a cabeça do gigante e perguntou:
+
+'Fera, para onde você levou minha filha ?'
+
+O gigante não sabia quem era aquele homem, mas entendia que ele devia ser alguém importante a julgar pela coroa brilhante em sua cabeça e seus anéis cravejados em pedras preciosas. Contudo, mesmo sem saber o que aquele homem queria ou era, sentiu muita dor e raiva e sua voz, e respondeu:
+
+'Quem é sua filha? Eu não peguei a filha de ninguém, me solte por favor, eu só quero continuar a viver minha vida em paz.'
+
+Ali o princípe viu a oportunidade de lançar seu veneno e veio se rastejando como se fosse uma cobra até chegar aos ouvidos do rei. Imediatamente, disse:
+
+'Senhor Rei, ele mente. Ele deve ter escondido a princesa naquela cabana imunda ou em alguma caverna nojenta de gigantes.'
+
+O rei enxerga razão em cada palavra do príncipe e grita com Jotão perguntando mais uma vez onde estava sua filha, a princesa.
+
+'Responda-me besta imunda, ou eu terei sua cabeça na minha mesa hoje.'
+
+Jotão chorava de desespero, parecia que suas palavras não faziam sentido para aquelas pessoas mesmo ele dizendo que não pegou ninguém. Então, de repente ele conseguiu entender tudo que estava acontecendo. Ele tinha conseguido ouvir o que tinha sido falado no ouvido do rei e reconheceu a pessoa, era o homem que tinha humilhado sua princesa e a feito chorar. Uma sensação de vazio dominou sua mente, ele estava perdido em seus pensamentos, tudo fazia sentido agora. A perseguição pela floresta, a batalha com a guarda imperial, o fato de ninguém dar ouvido a suas palavras, tudo! O princípe estava se vingando de Jotão pelo o que ele tinha feito no jardim, pela forma que ele tinha defendido a princesa. Todo esse entendimento acalentou seu coração, e fez suas próximas palavras sairem como se fossem um rugido de leão.
+
+''
