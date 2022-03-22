@@ -253,7 +253,13 @@ Jotão tinha entendido que chegara sua hora, fechou então os olhos e pensou em 
 
 'Paaarreeeemmm por favor, paaaareeeem !'
 
-O rei abaixa a espada apontada para o gigante e olha em volta, procurando da onde tinha vindo aquela voz. Vê alguns arbustos se mexendo e quando menos esperava vê uma correndo em direção aonde todos estavam reunidos. E, para sua surpresa, era sua filha ...
+O rei abaixa a espada apontada para o gigante, sai de cima do seu corpo e olha em volta, procurando da onde tinha vindo aquela voz. Vê alguns arbustos se mexendo e quando menos esperava vê uma mulher correndo em direção aonde todos estavam reunidos. Para sua surpresa era sua filha que vinha correndo até seus braços. Se antes o rei estava dominado pela fúria de ter perdido sua filha, agora seu sentimento era de tranquilidade. A princesa quase se joga aos braços do pai, ela não consegue falar direito, sua respiração está pesada, ela não consegue tomar fôlego para dizer que aquilo tudo era um mau entendido.
+
+O príncipe vendo que seu plano poderia ir por água abaixo, se apega a um último argumento.
+
+'Ela conseguiu fugir do esconderijo do gigante, cortem a cabeça dele agora. Pobrezinha, a fuga deve ter sido tão dificil que ela mal consegue falar.'
+
+O olhar da princesa perante essas palavras foi de desespero, ela só conseguia balançar a cabeça e fazer alguns sons com a boca e com as mãos. Embora sua aparência desse a entender que ela tinha sido atacada por algum animal porque seu vestido estava todo imundo e rasgado e em seu cabelo havia alguns ramos de plantas presos, seu olhar dizia que haviam fatos não contados e que ela precisava ser ouvida.
 
 princesa impede o castigo
 princesa conta a verdade
