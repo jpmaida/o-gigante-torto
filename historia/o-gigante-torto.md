@@ -261,7 +261,13 @@ O príncipe vendo que seu plano poderia ir por água abaixo, se apega a um últi
 
 O olhar da princesa perante essas palavras foi de desespero, ela só conseguia balançar a cabeça e fazer alguns sons com a boca e com as mãos. Embora sua aparência desse a entender que ela tinha sido atacada por algum animal porque seu vestido estava todo imundo e rasgado e em seu cabelo havia alguns ramos de plantas presos, seu olhar dizia que haviam fatos não contados e que ela precisava ser ouvida.
 
-princesa impede o castigo
+Os guardas do rei se movem em direção ao gigante para terminar o que o rei parecia ter esquecido de completar. A filha do rei olha o que está acontecendo em volta dela e se desespera mais ainda, ela não consegue falar e está prestes a ver uma injustiça. Ela tenta se soltar dos braços do pai, que não entende porque sua filha agia desse jeito e fica perguntando o que está acontecendo. Todos os esforços parecem inúteis, ela não consegue falar, sua força estava acabando e ela vê os guardas levantando as pontas de suas lanças para deferir o golpe letal em Jotão, o qual espera seu destino de olhos fechados.
+
+Em um último esforço desesperado ela se solta dos braços do pai e se joga em direção ao corpo do gigante, com o pouco de fôlego que ainda tinha faz um estrondo poderoso sair de sua boca com a mesma intensidade de mil terremotos. Todos os guardas se assustam quando ela berra 'Nãããão'. Lanças ficam paradas no ar, todos se entreolham, o tempo parece que tinha parado, ninguém entendia o que estava havendo. Ela sentia que aquele era o seu momento de contar a verdade e expor o que sentia. Jotão sentia que tinha sido salvo por aquele anjo em forma de mulher e que tudo se resolveria.
+
+
+
+
 princesa conta a verdade
 principe é preso
 jotão perdoa o príncipe
