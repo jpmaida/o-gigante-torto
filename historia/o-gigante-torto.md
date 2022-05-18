@@ -263,11 +263,23 @@ O olhar da princesa perante essas palavras foi de desespero, ela só conseguia b
 
 Os guardas do rei se movem em direção ao gigante para terminar o que o rei parecia ter esquecido de completar. A filha do rei olha o que está acontecendo em volta dela e se desespera mais ainda, ela não consegue falar e está prestes a ver uma injustiça. Ela tenta se soltar dos braços do pai, que não entende porque sua filha agia desse jeito e fica perguntando o que está acontecendo. Todos os esforços parecem inúteis, ela não consegue falar, sua força estava acabando e ela vê os guardas levantando as pontas de suas lanças para deferir o golpe letal em Jotão, o qual espera seu destino de olhos fechados.
 
-Em um último esforço desesperado ela se solta dos braços do pai e se joga em direção ao corpo do gigante, com o pouco de fôlego que ainda tinha faz um estrondo poderoso sair de sua boca com a mesma intensidade de mil terremotos. Todos os guardas se assustam quando ela berra 'Nãããão'. Lanças ficam paradas no ar, todos se entreolham, o tempo parece que tinha parado, ninguém entendia o que estava havendo. Ela sentia que aquele era o seu momento de contar a verdade e expor o que sentia. Jotão sentia que tinha sido salvo por aquele anjo em forma de mulher e que tudo se resolveria.
+Em um último esforço desesperado ela se solta dos braços do pai e se joga em direção ao corpo do gigante, com o pouco de fôlego que ainda tinha faz um estrondo poderoso sair de sua boca com a mesma intensidade de um rugido de urso. Todos os guardas se assustam quando ela berra 'Nãããão'. Lanças ficam paradas no ar, todos se entreolham, o tempo parece que tinha parado, ninguém entendia o que estava havendo. Ela sentia que aquele era o seu momento de contar a verdade e expor o que sentia. Jotão sentia que tinha sido salvo por aquele anjo em forma de mulher e que no fim tudo acabaria bem.
+
+A verdade vem a tona, ela conta a todos o que verdadeiramente aconteceu no dia da festa no jardim e como o príncipe tinha feito se sentir humilhada. Ela continua contando que Jotão era a personificação do verdadeiro bem e que ele invadiu a festa porque tinha visto essa injustiça acontecer, e que, na verdade, o príncipe tinha promovido toda aquela perseguição porque o gigante tinha ganhado dele em um duelo. O duelo também não tinha sido lá essas coisas, até porque Jotão não teve nenhuma dificuldade em arrancar a espada do príncipe, e isso era o que ele queria evitar, que todos soubessem. Assim, a princesa acaba de contar o que aconteceu.
+
+Alguns dos guardas começam a esboçar sorrisinhos sobre toda a situação porque o príncipe não era muito bem conhecido pelas suas habilidades com o sabe, mas sim pela sua arrogância e falta de humildade. O rei então questiona a princesa o motivo dela ter sumido. Afinal de contas, era muito mais fácil ela ter explicado no castelo que aquilo não passava senão de um engano.
+
+A princesa disse que tentou acalmar todos e explicar o que aconteceu, mas que na verdade todos ficaram com medo do gigante. Todos julgaram Jotão pela aparência, sem conhecer ele antes. O príncipe viu aí a oportunidade de inventar a história de que ela tinha sido raptada e terminar como o herói no fim das contas. Ela continuou explicando que tinha saído do jardim para tentar impedir os guardas de cometer alguma injustiça com o gigante, ela tentou correr atrás do gigante e da guarda imperial, mas não conseguiu acompanhar o passo.
+
+O rei sabia que sua filha não mentia e confiou no julgamento da filha, ordenou que os guardas soltassem as amarras do gigante. Os homens se entreolharam, alguns com medo, outros ainda confusos mas obedeceram a ordem. Jotão sentiu a pressão das cordas diminuir, removeu uma de cada vez e agradeceu o homem que tinha o liberado. O gigante se levanta lentamente por detrás da princesa, a frente estão os guardas, o rei e o príncipe, todos vão levantando suas cabeças conforme o gigante vai ficando cada vez maior e maior. O medo deles é real, só o tamanho de Jotão já é intimidador. O rei toma a frente e pergunta:
+
+'Gigante, tudo o que minha filha disse é verdade?'
+
+Jotão responde:
+
+'Sim, senhor rei
 
 
 
-
-princesa conta a verdade
 principe é preso
 jotão perdoa o príncipe
