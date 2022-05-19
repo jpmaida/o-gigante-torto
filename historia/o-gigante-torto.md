@@ -271,13 +271,27 @@ Alguns dos guardas começam a esboçar sorrisinhos sobre toda a situação porqu
 
 A princesa disse que tentou acalmar todos e explicar o que aconteceu, mas que na verdade todos ficaram com medo do gigante. Todos julgaram Jotão pela aparência, sem conhecer ele antes. O príncipe viu aí a oportunidade de inventar a história de que ela tinha sido raptada e terminar como o herói no fim das contas. Ela continuou explicando que tinha saído do jardim para tentar impedir os guardas de cometer alguma injustiça com o gigante, ela tentou correr atrás do gigante e da guarda imperial, mas não conseguiu acompanhar o passo.
 
-O rei sabia que sua filha não mentia e confiou no julgamento da filha, ordenou que os guardas soltassem as amarras do gigante. Os homens se entreolharam, alguns com medo, outros ainda confusos mas obedeceram a ordem. Jotão sentiu a pressão das cordas diminuir, removeu uma de cada vez e agradeceu o homem que tinha o liberado. O gigante se levanta lentamente por detrás da princesa, a frente estão os guardas, o rei e o príncipe, todos vão levantando suas cabeças conforme o gigante vai ficando cada vez maior e maior. O medo deles é real, só o tamanho de Jotão já é intimidador. O rei toma a frente e pergunta:
+O rei sabia que sua filha não mentia e confiou no julgamento da filha, ordenou que os guardas soltassem as amarras do gigante. Os homens se entreolharam, alguns com medo, outros ainda confusos mas obedeceram a ordem. Jotão sentiu a pressão das cordas diminuir, removeu uma de cada vez e agradeceu o homem que tinha o liberado. O gigante se levanta lentamente por detrás da princesa, a frente estão os guardas, o rei e o príncipe, todos vão levantando suas cabeças conforme o gigante vai ficando cada vez maior e maior. O medo deles é real, só o tamanho de Jotão já é intimidador. O rei olha o gigante com olhos duros, decididos, toma a frente e pergunta:
 
 'Gigante, tudo o que minha filha disse é verdade?'
 
 Jotão responde:
 
-'Sim, senhor rei
+'Sim, senhor rei. É tudo verdade. Não consegui suportar a dor de ver a princesa sendo humilhado por aquelas pessoas. Ela não tinha feito nada para ninguém, mas estava sendo ridicularizada por ele' - Jotão aponta para o príncipe e continua - 'e por todos. Qual é o sentido de machucar alguém assim? Porque quem é diferente precisa ser tratado dessa forma?'
+
+O rei não tinha total certeza se deveria acreditar no gigante ou não. O príncipe, vendo que sua situação não estava boa com o rei, começou a envenenar sua cabeça novamente.
+
+'Não acredite nele senhor rei, os gigantes mentem, eles querem nos devorar e fazer o mal. Não acredite nesse só porque tem cara de bobinho.'
+
+Ouvir aquilo na frente de todos foi doloroso para Jotão, ele ainda não entendia o motivo de tanto ódio, e com sua humildade resolveu contar um pouco de sua história.
+
+'Você diz que eu sou mentiroso, mas veja sua espada, ela não está torta?'
+
+Todos olharam para o sabre do príncipe, Jotão continua.
+
+'Está torta porque eu entortei, e fazer isso não foi nenhum esforço para mim. Eu arranco árvores do chão se eu quiser, mas não faço. E, não faço porque para mim é claro que todo ser vivo mereço respeito, querendo eu ou não. Estou acostumado a lidar com tipos que nem você, aqui na floresta também sou motivo de chacota entre os animais, todos fazem piadas do meu pé que é torto ou da forma que eu ando. As únicas que me acolheram do jeito que são minha amiga ovelha e a princesa. Eu aprendi com o tempo que é preciso ser muito forte para continuar vivendo quando todos te rejeitam, meus pais me ensinaram isso. Eles me criaram aqui, nesse lugar longe, porque tinham medo de que me fariam mal porque sou um gigante. Sua filha, senhor rei, me ensinou o contrário.'
+
+Ninguém tinha coragem de interromper a fala do gigante, ele finaliza.
 
 
 
