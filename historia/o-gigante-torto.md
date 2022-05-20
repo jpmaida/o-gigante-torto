@@ -293,6 +293,22 @@ Todos olharam para o sabre do príncipe, Jotão continua.
 
 Ninguém tinha coragem de interromper a fala do gigante, ele finaliza.
 
+'Diga a todos porque você fazia pouco da princesa. Melhor ainda, diga a todos porque você apoiava as outras princesas enquanto elas faziam piadas de mal gosto. Vamos lá, diga!'
+
+O príncipe foi ficando nervoso conforme o gigante o botava contra a parede na frente de todos e com uma risadinha nervosa começou uma justificativa para o que tinha feito.
+
+'Vamos ter calma gente. Vocês realmente não vão acreditar no gigante, né?! Eu só estava brincando, não é verdade princesa? Tudo não passava de uma simples brincadeira.'
+
+Os guardas do rei começaram a cercar o princípe e ele foi ficando mais nervoso, sua voz já estava trêmula e seu olhar preocupado de que fosse preso. Então, quando ninguém esperava, ele empurrou alguns guardas e saiu correndo, mas ele não esperava que o gigante estivesse pronto para agir. Com a velocidade de um raio Jotão agarrou o príncipe pela capa e o levantou como se fosse um dos peixes do lago que ele estava acostumado brincar. Na verdade, o príncipe até parecia um peixe porque ficava se debatendo e dizia:
+
+'Me solte, gigante imundo. Você vai pagar caro pelo que fez, você vai se arrepender.'
+
+Então foi nesse momento que para a surpresa de todos, o rei tomou a frente e disse.
+
+'Quem vai se arrepender será você, senhor príncipe. Você está a partir desse momento proibido de pisar em minhas terras, frequentar minha corte e entrar em contato com qualquer familiar meu. Caso alguma das minhas ordens sejam descumpridas, minha filha tem o direito de fazer o que ela bem achar com você.'
+
+Jotão começou a gargalhar como uma criança, os dias de maldade do príncipe tinham acabado. Ele não podia continuar sua maldade com mais ninguém, e assim, o gigante o pôs no chão.
+
 
 
 principe é preso
