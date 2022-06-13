@@ -299,7 +299,7 @@ O príncipe foi ficando nervoso conforme o gigante o botava contra a parede na f
 
 'Vamos ter calma gente. Vocês realmente não vão acreditar no gigante, né?! Eu só estava brincando, não é verdade princesa? Tudo não passava de uma simples brincadeira.'
 
-Os guardas do rei começaram a cercar o princípe e ele foi ficando mais nervoso, sua voz já estava trêmula e seu olhar preocupado de que fosse preso. Então, quando ninguém esperava, ele empurrou alguns guardas e saiu correndo, mas ele não esperava que o gigante estivesse pronto para agir. Com a velocidade de um raio Jotão agarrou o príncipe pela capa e o levantou como se fosse um dos peixes do lago que ele estava acostumado brincar. Na verdade, o príncipe até parecia um peixe porque ficava se debatendo e dizia:
+Os guardas do rei começaram a cercar o princípe e ele foi ficando mais nervoso, sua voz já estava trêmula e seu olhar preocupado de que fosse preso. Então, quando ninguém esperava, ele empurrou alguns guardas e saiu correndo, mas ele não esperava que o gigante estivesse pronto para agir. Com a velocidade de um raio, Jotão agarrou o príncipe pela capa e o levantou como se fosse um dos peixes do lago que ele estava acostumado brincar. Na verdade, o príncipe até parecia um peixe porque ficava se debatendo e dizia:
 
 'Me solte, gigante imundo. Você vai pagar caro pelo que fez, você vai se arrepender.'
 
@@ -307,7 +307,19 @@ Então foi nesse momento que para a surpresa de todos, o rei tomou a frente e di
 
 'Quem vai se arrepender será você, senhor príncipe. Você está a partir desse momento proibido de pisar em minhas terras, frequentar minha corte e entrar em contato com qualquer familiar meu. Caso alguma das minhas ordens sejam descumpridas, minha filha tem o direito de fazer o que ela bem achar com você.'
 
-Jotão começou a gargalhar como uma criança, os dias de maldade do príncipe tinham acabado. Ele não podia continuar sua maldade com mais ninguém, e assim, o gigante o pôs no chão.
+Jotão gargalhava como uma criança mas com risadas tão grossas quanto as unhas de seus imensos. Os dias de maldade do príncipe tinham acabado, ele não podia continuar sua maldade com mais ninguém, e assim, o gigante o pôs no chão. O rei então dá então a ordem final:
+
+'Leve o príncipe para o castelo, quero dez guardas fazendo a escolta. Somente após eu terminar aqui o que devo fazer e chegar ao castelo, o príncipe terá minha permissão para partir das minhas terras.'
+
+Os guardas reunem os cavalos que ainda tinham condição de fazer o trajeto de volta para o castelo e começam o regresso com o príncipe. A pricesa puxa o pai de canto e diz:
+
+'Pai, eu gosto muito de Jotão, eu quero levar ele para viver no castelo conosco. Eu acredito no coração dele, ele é bom.'
+
+O pai não gostou de ouvir aquilo, ele tinha entendido que o gigante não era o vilão da história mas viver com ele no mesmo castelo era algo que ele não estava preparado. Ele franziu a testa ao ouvir o pedido da filha e antes que pudesse dizer algo a filha pediu para que olhasse mais uma vez para o gigante e visse o que ele estava fazendo.
+
+Jotão estava pegando com suas mãos imensas os cavalos que tinham se machucado e fazendo carinho para que eles pudessem ficar mais tranquilos. Uma vez que estivessem calmos, ele rasgava parte da sua própria roupa para fazer curativos naqueles que estavam feridos. E não somente para os cavalos mas também para os guardas que estavam machucados. Ele trazia água do lago para limpar as feridas e tinha pego toalhas gigantescas em sua cabana para ajudar.
+
+Todos ali estavam desconstruindo sua visão do gigante, 
 
 
 
