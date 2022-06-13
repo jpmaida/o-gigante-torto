@@ -319,9 +319,20 @@ O pai não gostou de ouvir aquilo, ele tinha entendido que o gigante não era o 
 
 Jotão estava pegando com suas mãos imensas os cavalos que tinham se machucado e fazendo carinho para que eles pudessem ficar mais tranquilos. Uma vez que estivessem calmos, ele rasgava parte da sua própria roupa para fazer curativos naqueles que estavam feridos. E não somente para os cavalos mas também para os guardas que estavam machucados. Ele trazia água do lago para limpar as feridas e tinha pego toalhas gigantescas em sua cabana para ajudar.
 
-Todos ali estavam desconstruindo sua visão do gigante, 
+Todos ali estavam desconstruindo sua visão do gigante, não fazia sentido desconfiar de alguém que estava ajudando justamente aqueles que o tinham machucado anteriormente. O momento que causou uma maior apreensão a todos foi quando ele estendeu seu enorme e poderoso braço para alcançar o topo de um morro. Todos esperavam alguma reviravolta mas o que saiu foi uma ovelha, que não parava de berrar.
 
+Quando Jotão pôs a ovelha amiga no chão, ela partiu em uma cabeçada para um dos guardas que estavam ali pertos, ninguém ia machucar o amigo dela. O gigante pôs sua mão na frente e amorteceu o impacto, explicou a ela o que tinha acontecido. Quem estava de fora não conseguia entender o que estava acontecendo, só o que viam era o gigante falar com uma ovelha que ficava fazendo 'béééé béééé'. Só Jotão sabia falar a língua dos animais, e em poucos instantes, Lolô estava feliz pulando perto de Jotão e passando no meio de suas pernas.
 
+A resposta ao olhar desconfiado do pai, visto o cenário desenhado ali, foi cruzar os braços e dar aquele olhar que cobrava por uma resposta. O pai não teve como dizer não a filha.
 
-principe é preso
-jotão perdoa o príncipe
+'Vamos fazer um teste com ele e ver como ele se sai.'
+
+O rei chamou o gigante para conversar e disse que devia muito a ele por ter tanto carinho com sua filha e cuidado dela quando ela mais precisou. Disse também que as portas de seu reino sempre estariam abertas para ele e que a partir daquele dia não iria tolerar nenhum tipo de maltrato com o gigante. Enquanto vivesse prometeu que nenhum mal seria feito ao gigante ou seus amigos que viviam ali, e sua filha poderia visitá-lo quando bem entendesse. Como uma proposta final, ofereceu a oportunidade ao gigante de conviver com as outras pessoas do reino, andar livremente pela cidade e palácio e o posto de guardião real das coisas que ficam no alto. Seria uma escolha inteligente oferecer ao gigante um emprego para consertar coisas ou ajudar em situações que pessoas de tamanho normal não alcançam.
+
+gigante pensa no assunto
+princesa convence gigante a aceitar emprego
+gigante aceita emprego
+rei apresenta gigante como guardião
+gigante começa a trabalhar e todos ficam desconfiados no início
+com o tempo as pessoas se acostumam
+o gigante vira amigo de todos
