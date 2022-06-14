@@ -327,10 +327,26 @@ A resposta ao olhar desconfiado do pai, visto o cenário desenhado ali, foi cruz
 
 'Vamos fazer um teste com ele e ver como ele se sai.'
 
-O rei chamou o gigante para conversar e disse que devia muito a ele por ter tanto carinho com sua filha e cuidado dela quando ela mais precisou. Disse também que as portas de seu reino sempre estariam abertas para ele e que a partir daquele dia não iria tolerar nenhum tipo de maltrato com o gigante. Enquanto vivesse prometeu que nenhum mal seria feito ao gigante ou seus amigos que viviam ali, e sua filha poderia visitá-lo quando bem entendesse. Como uma proposta final, ofereceu a oportunidade ao gigante de conviver com as outras pessoas do reino, andar livremente pela cidade e palácio e o posto de guardião real das coisas que ficam no alto. Seria uma escolha inteligente oferecer ao gigante um emprego para consertar coisas ou ajudar em situações que pessoas de tamanho normal não alcançam.
+O rei chamou o gigante para conversar e disse que devia muito a ele por ter tanto carinho com sua filha e cuidado dela quando ela mais precisou. Disse também que as portas de seu reino sempre estariam abertas para ele e que a partir daquele dia não iria tolerar nenhum tipo de maltrato com o gigante. Enquanto vivesse prometeu que nenhum mal seria feito ao gigante ou seus amigos que viviam ali, e sua filha poderia visitá-lo quando bem entendesse. Como uma proposta final, ofereceu a oportunidade ao gigante de conviver com as outras pessoas do reino, andar livremente pela cidade e palácio e o posto real de guardião da cidade. Seria uma escolha inteligente oferecer ao gigante um emprego para consertar coisas ou ajudar em situações que pessoas de tamanho normal não alcançam.
+
+O gigante pediu um tempo para pensar no assunto, ele precisava organizar algumas coisas antes. O lugar onde morava estava destruído, havia muito trabalho a ser feito e tudo ainda recente para ele. Um novo galinheiro precisava ser construído, era necessário avaliar os danos a sua casa, sua horta também havia sido danificada e o jardim não era mais um jardim. O rei nota a preocupação do gigante em relação ao seu lar que fora distruído, e de antemão, diz ao gigante:
+
+'Em relação aos danos causados aqui, fique tranquilo, tudo será consertado. Mandarei meu construtor real vir aqui, diga a ele o que foi destruído que tudo será reposto.'
+
+Sem mais delongas, o rei reúne os guardas que ainda ali esperavam e se prepara para voltar ao palácio junto de sua filha. Ela monta em um cavalo e se vira para se despedir do gigante. Embora a história tenha tido um desfecho não tão trágico assim, o sentimento ainda era de tristeza pois mais uma vez eles estavam sendo separados. O grupo real começa a ir embora e o gigante acena em sinal de despedida. A princesa responde com outro aceno e eles entram floresta adentro.
+
+Dias se passam e as reformas do lar de Jotão começam. A princesa vinha nesse meio tempo fazer visitas a Jotão e ajudar no que podia na reforma. Essa foi a forma que eles encontraram para passar um tempo juntos. Nesses momentos ela conversava com o gigante sobre aceitar a proposta que seu pai tinha feito, que seria bom para ele conhecer o mundo e outras pessoas, mas o gigante ainda sentia medo de não ser aceito. Ela estaria lá com ele caso alguma coisa acontecesse, dando forças, assim como ele estava com ela quando precisou. É necessário enfrentar nossos medos para que possamos viver experiências diferentes, ela termina.
+
+O gigante pensa e passa a mão na sua barba. Ele faz a princesa prometer que estaria com ele onde ele fosse, ela aceita e promete que não sairia do lado de Jotão. Eles combinam que o dia seguinte seria o dia escolhido para ir ao palácio aceitar a proposta do rei. A princesa viria a casa de Jotão para buscá-lo e os dois iriam juntos ao palácio. Eles terminam as reformas daquele dia e o sol já vai se recolhendo, a princesa se despede do gigante e parte.
+
+A noite chega e o gigante vai deitar após um longo dia de trabalho. Seu corpo doía um pouco, os pés estavam inchados e as mãos doloridas, mas a cabeça estava latejando com dúvidas de como seria o dia seguinte. O sono vence a batalha e o gigante dorme. A lua dá espaço para a chegada do sol. Os primeiros sons de um novo dia chegavam a cabana de Jotão, passarinhos cantavam felizes para mais um dia ensolarado. Os peixes pulavam para fora da água no lago e as abelhas já iam de flor em flor em seu árduo trabalho. O gigante se arruma, penteia o cabelo, coisa que ele não gostava de fazer, e usa a melhor roupa que tinha.
+
+A pricesa chega e se surpreende com aquele cavalheiro.
 
 gigante pensa no assunto
 princesa convence gigante a aceitar emprego
+
+
 gigante aceita emprego
 rei apresenta gigante como guardião
 gigante começa a trabalhar e todos ficam desconfiados no início
